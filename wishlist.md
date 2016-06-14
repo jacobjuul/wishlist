@@ -4,8 +4,11 @@
 - [Gentle Monster](http://en.gentlemonster.com/shop/ver1_detail.php?it_id=1450953023&cata=b0) $215
 - Sommerbukser
 - Trøjer
+- [The Effective Executive](https://www.amazon.co.uk/Effective-Executive-Definitive-Harperbusiness-Essentials/dp/0060833459?ie=UTF8&tag=offsitoftimfe-20) (bog)
 - [How to Stop Worrying and Start Living](https://www.amazon.co.uk/How-Stop-Worrying-Start-Living/dp/0671733354) (bog)
 - [The Magic of thinking Big](https://www.amazon.co.uk/Magic-Thinking-Big-David-Schwartz/dp/1785040472/ref=sr_1_1?ie=UTF8&qid=1465915699&sr=8-1&keywords=the+magic+of+thinking+big) (bog)
 - [The Black Swan](https://www.amazon.co.uk/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X?ie=UTF8&tag=offsitoftimfe-20) (bog)
 - [Mindset: The New Psychology of Success ](https://www.amazon.co.uk/Mindset-Psychology-Success-Carol-Dweck/dp/0345472322?ie=UTF8&tag=offsitoftimfe-20) (bog)
 - [Dreaming Yourself Awake](https://www.amazon.co.uk/Dreaming-Yourself-Awake-Tibetan-Transformation/dp/159030957X?ie=UTF8&tag=offsitoftimfe-20) (bog)
+- [The History of the Peloponnesian War](https://www.amazon.co.uk/History-Peloponnesian-War-Thucydides/dp/0140440399?ie=UTF8&tag=offsitoftimfe-20) (bog)
+- [Words That Work](https://www.amazon.co.uk/Words-That-Work-What-People/dp/1401309291?ie=UTF8&tag=offsitoftimfe-20) (bog)
