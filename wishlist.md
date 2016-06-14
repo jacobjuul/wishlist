@@ -7,3 +7,5 @@
 - [How to Stop Worrying and Start Living](https://www.amazon.co.uk/How-Stop-Worrying-Start-Living/dp/0671733354) (bog)
 - [The Magic of thinking Big](https://www.amazon.co.uk/Magic-Thinking-Big-David-Schwartz/dp/1785040472/ref=sr_1_1?ie=UTF8&qid=1465915699&sr=8-1&keywords=the+magic+of+thinking+big) (bog)
 - [The Black Swan](https://www.amazon.co.uk/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X?ie=UTF8&tag=offsitoftimfe-20) (bog)
+- [Mindset: The New Psychology of Success ](https://www.amazon.co.uk/Mindset-Psychology-Success-Carol-Dweck/dp/0345472322?ie=UTF8&tag=offsitoftimfe-20) (bog)
+- [Dreaming Yourself Awake](https://www.amazon.co.uk/Dreaming-Yourself-Awake-Tibetan-Transformation/dp/159030957X?ie=UTF8&tag=offsitoftimfe-20) (bog)
