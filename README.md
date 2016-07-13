@@ -1,4 +1,4 @@
 # wishlist
 
 ## Birthdays
-- [2016](birthday2016.md)
+- [2016](birthdays/2016.md)
