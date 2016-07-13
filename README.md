@@ -1,4 +1,4 @@
 # wishlist
 
 ## fødselsdag
-- [Read more words!](wishlist.md)
+- [2016](birthday2016.md)
